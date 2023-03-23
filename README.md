@@ -1,1 +1,1 @@
-# Instruments-traditional-Chinese-Orchestra
+# Instruments of the Traditional Chinese Orchestra
